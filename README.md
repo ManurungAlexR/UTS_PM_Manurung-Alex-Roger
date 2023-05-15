@@ -11,4 +11,3 @@ TI.20.A.2
 
 ![2](https://github.com/ManurungAlexR/UTS_PM_Manurung-Alex-Roger/assets/101391579/39504653-f709-4684-9c8d-1f94140fef31)
 
-![3](https://github.com/ManurungAlexR/UTS_PM_Manurung-Alex-Roger/assets/10139
