@@ -1,1 +1,4 @@
-# UTS_PM_Manurung-Alex-Roger
+# UTS_Pemograman Mobile
+
+Manurung Alex Roger
+TI.20.A.2
